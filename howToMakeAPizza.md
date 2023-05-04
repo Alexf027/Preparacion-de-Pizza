@@ -19,11 +19,11 @@ Ingredientes de la pizza hawaiana para 4 personas:
 
 Para la masa (2 ó 3 pizzas):
 
-400 g de harina de fuerza
-240 ml de agua
-10 ml de aceite de oliva virgen extra
-15-20 g de levadura prensada fresca
-1 cucharadita de sal
+1. 400 g de harina de fuerza
+2. 240 ml de agua
+3. 10 ml de aceite de oliva virgen extra
+4. 15-20 g de levadura prensada fresca
+5. 1 cucharadita de sal
 
 Cómo hacer la pizza hawaiana:
 
